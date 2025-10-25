@@ -1,1 +1,1 @@
-Generate image with AI
+Your imagination to image Using ImaGen
